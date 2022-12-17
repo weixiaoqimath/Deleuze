@@ -1,1 +1,1 @@
-# A collection of materials on Gills Deleuze
+# A collection of materials on Different Philosophers
